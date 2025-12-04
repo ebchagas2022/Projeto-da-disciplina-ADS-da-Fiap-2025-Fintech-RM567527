@@ -1,0 +1,1 @@
+# Projeto-da-disciplina-ADS-da-Fiap-2025-Fintech-RM567527
